@@ -8,4 +8,4 @@
 * Even I participated in a workshop on cloud computing in my undergraduation.
 
 ![This is my favorite meme]
-(https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.rd.com%2Ffunny%2Fmemes%2F&psig=AOvVaw3HImbdgfJereaX1qk3Z5rV&ust=1666237084446000&source=images&cd=vfe&ved=0CAkQjRxqFwoTCKD8koev6_oCFQAAAAAdAAAAABAJ)
+(https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.goodreads.com%2Fbook%2Fshow%2F54192177-drunk-memes&psig=AOvVaw3HImbdgfJereaX1qk3Z5rV&ust=1666237084446000&source=images&cd=vfe&ved=0CAkQjRxqFwoTCKD8koev6_oCFQAAAAAdAAAAABAW)
